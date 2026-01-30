@@ -2,7 +2,7 @@
 
 🧠 Graduated in System Analysis and Development <br/>
 👩‍💼 Product Owner and Developer <br/>
-
+Languages: 🇧🇷, 🇺🇸, 🇩🇪
 
 
 
